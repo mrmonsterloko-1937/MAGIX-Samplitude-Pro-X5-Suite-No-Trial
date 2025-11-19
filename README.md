@@ -1,0 +1,1 @@
+# MAGIX-Samplitude-Pro-X5-Suite-No-Trial
